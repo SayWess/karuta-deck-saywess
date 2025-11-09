@@ -33,7 +33,7 @@ My super karuta deck
 
 <img src="Visuals/sw_aldnoah-zero_ed2_aliez.png" alt="Aldnoah Zero ED 2 aLIEz" width="250"/>  
 
-### [05 - LOVE or HATE?](https://www.youtube.com/watch?v=GuAcdIqcanA)
+### [05 - LOVE or HATE?](https://www.youtube.com/watch?v=0o6qbg7gRMk)
 &emsp;**Anime :** [Villainess Level 99](https://anilist.co/anime/163076) - OP 1  
 &emsp;**Artiste(s) :** Mayu Maeshima  
 
